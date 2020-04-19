@@ -1,1 +1,0 @@
-# Obat-Gabut
